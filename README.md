@@ -1,0 +1,2 @@
+Pav Bhaji is a hearty, delightsome, flavorful meal of mashed vegetable gravy with fluffy soft buttery dinner rolls served with a side of crunchy piquant onions, tangy lemon and herby coriander. 
+ A fast food dish from India consisting of a thick vegetable curry (bhaji) served with a soft bread roll (pav). Its origins are in the state of Maharashtra.
